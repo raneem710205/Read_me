@@ -127,7 +127,7 @@ Video Editing
 
 📫 Connect With Me
 
-📧 Email: your-email@example.com
+📧 Email: raneem.ashraf246@gmail.com
 
-💼 LinkedIn: your-linkedin-link
-💻 GitHub: https://github.com/YOUR_USERNAME
+💼 LinkedIn: www.linkedin.com/in/raneem-ashraf1234
+💻 GitHub:[(https://github.com/raneem710205)](https://github.com/raneem710205)
